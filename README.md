@@ -1,1 +1,0 @@
-# adithidesigns.github.io
